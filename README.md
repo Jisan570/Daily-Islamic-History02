@@ -203,6 +203,59 @@ Umar (RA) did not just rule; he built institutions. Many modern state systems us
 
 ---
 *Follow along as we witness the dramatic military expansions and the historic liberation of Jerusalem under Umar's rule tomorrow!*
+# 🌙 Islamic History Journey - Day 27
+> **"In the name of Allah... This is the protection which the servant of Allah, Umar, the Commander of the Faithful, has given to the people of Jerusalem..." — The Umariyya Covenant**
+
+Welcome to Day 27 of my daily Islamic History series. Today, we explore one of the most historic and peaceful milestones in Islamic history: the Liberation of Jerusalem (16 AH / 637 CE) under the Second Caliph, Umar ibn al-Khattab (RA), and the foundational template it set for religious freedom.
+
+---
+
+## 🏰 The Siege of Jerusalem
+
+Following successive Muslim victories against the Byzantine Empire at the Battles of Yarmouk and Ajnadayn, the Muslim forces led by **Abu Ubaidah ibn al-Jarrah (RA)** and **Amr ibn al-Aas (RA)** marched toward Jerusalem (*Al-Quds*). 
+
+Jerusalem was a heavily fortified, holy city. After a peaceful siege lasting several months, the Patriarch of Jerusalem, **Sophronius**, realized that Byzantine reinforcement was not coming. However, he refused to surrender the keys of the holy city to just any general. He made a historic condition: he would only hand over the keys of Jerusalem to the Caliph himself, **Umar ibn al-Khattab (RA)**, in person.
+
+---
+
+## 🐪 The Journey of Extreme Humility
+
+When the message reached Madinah, Umar (RA) did not travel with a massive royal entourage or luxury chariots. Instead, he set out on a 500-mile journey across the desert accompanied by **only one servant and a single camel**.
+
+To be fair, they took turns riding the camel. By the time they reached the outskirts of Jerusalem, it was the servant's turn to ride. Umar (RA) was walking on foot, holding the reins of the camel, with his clothes covered in desert dust and mud. 
+
+Sophronius and the Christian leaders looking from the city walls were completely stunned. They expected a flamboyant, proud conqueror, but instead, they witnessed the ruler of the world's fastest-growing superpower arriving in absolute, profound humility.
+
+---
+
+## 📜 The Umariyya Covenant (*Al-Ahdah Al-Umariyya*)
+
+Upon entering the city, Umar (RA) signed a historic peace treaty with the inhabitants of Jerusalem. This document remains one of the greatest charters of religious tolerance in human history.
+
+### 🔑 Key Clauses of the Treaty:
+* **Protection of Life and Property:** Absolute security was guaranteed to all Christian citizens, their families, and their belongings.
+* **Freedom of Worship:** Their churches were not to be destroyed, occupied, or altered. No non-Muslim was to be forced to convert to Islam.
+* **The Return of Jewish Citizens:** For centuries under Byzantine rule, Jewish people were banned from living or praying inside Jerusalem. Umar (RA) lifted this ban, allowing Jewish families to return and practice their faith freely alongside Christians and Muslims.
+
+---
+
+## 🕊️ A Lesson in Respect: The Church of the Holy Sepulchre
+
+While Sophronius was showing Umar (RA) around the historic **Church of the Holy Sepulchre**, the time for the Muslim afternoon prayer (*Asr*) arrived. Sophronius politely invited Umar to pray right there inside the church.
+
+Umar (RA) gently declined, walking outside to pray on the steps instead. When asked why, Umar replied beautifully:  
+> *"If I pray inside the church today, future generations of Muslims might misinterpret my action and try to convert this church into a mosque, saying 'Umar prayed here.' I want your place of worship to remain yours forever."*
+
+---
+
+## 💡 Key Takeaways & Lessons
+
+1. **Justice as a Mirror of Faith:** The peaceful entry into Jerusalem showed that Islam does not seek to crush or erase other cultures and faiths, but to establish a system where everyone can coexist under the umbrella of absolute justice.
+2. **True Dignity in Humility:** Umar’s entry on foot proved that real honor and respect do not come from material luxury, expensive garments, or massive security details—it comes from the strength of character, faith, and humility before God.
+
+---
+*Follow along as we witness the final years of Umar's caliphate and his sudden tragic martyrdom tomorrow!*
+
 
 
 
