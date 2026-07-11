@@ -255,6 +255,50 @@ Umar (RA) gently declined, walking outside to pray on the steps instead. When as
 
 ---
 *Follow along as we witness the final years of Umar's caliphate and his sudden tragic martyrdom tomorrow!*
+# 🌙 Islamic History Journey - Day 28
+> **"O Allah! Grant me martyrdom in Your cause, and let my death be in the city of Your Messenger (ﷺ)." — A Du'a by Umar ibn al-Khattab (RA)**
+
+Welcome to Day 28 of my daily Islamic History series. Today, we reflect upon the tragic and pivotal end of an era: the Martyrdom of the Second Caliph, Umar ibn al-Khattab (RA) (23 AH / 644 CE)—an event that shocked the Muslim world and altered the political landscape of the early Islamic State.
+
+---
+
+## ⚡ The Motivation Behind the Assassination
+
+Under Umar’s leadership, the Islamic state expanded rapidly, successfully absorbing the entire Sasanian Persian Empire and fracturing the Byzantine presence in the Levant. While the vast majority of citizens lived peacefully under his just rule, these massive geopolitcal shifts left deep-seated resentment among certain defeated factions.
+
+The tool for this resentment became a Persian captive named **Abu Lu'lu'ah (Firuz)**, a skilled craftsman and slave of the companion Al-Mughirah ibn Shu'bah. Abu Lu'lu'ah approached Umar in the market of Madinah, complaining about the heavy tax imposed by his master. Umar evaluated the situation and noted that given his advanced skills as a carpenter and blacksmith, the tax was incredibly fair, adding, *"I hear you can build a windmill driven by the wind; build one for me."* Abu Lu'lu'ah muttered dark, threatening words: *"I will build a windmill for you that the whole world will talk about."*
+
+---
+
+## ⚔️ The Ambush at Fajr Prayer
+
+On the morning of the 26th of Dhul-Hijjah, 23 AH, Umar (RA) went to Masjid an-Nabawi to lead the **Fajr (dawn) prayer**. As was his custom, he stood at the front, straightening the rows of the believers. 
+
+Just as Umar raised his hands and pronounced the opening *Takbeer* ($Allahu\ Akbar$) to begin the prayer, Abu Lu'lu'ah—who had hidden a double-bladed dagger coated in deadly poison under his cloak—slipped out from the front row. He rushed the Caliph, stabbing him **six times** in the torso, including a fatal blow just below the navel.
+
+Umar fell to the ground, bleeding profusely. The assassin turned his dagger on the surrounding congregation as he tried to escape, stabbing 13 other companions (7 of whom passed away) before a companion threw a heavy cloak over him. Realizing he was trapped, Abu Lu'lu'ah took his own life with the same poisoned blade.
+
+---
+
+## 📋 The Final Display of Justice and Legacy
+
+Umar (RA) appointed **Abdur Rahman ibn Awf (RA)** to finish leading the prayer while he lay on the floor. When Umar regained consciousness inside his home, his very first question was: *"Who stabbed me?"* Upon hearing that it was a non-Muslim Persian slave, Umar whispered, ***"Alhamdulillah (All praise is to Allah) who did not make my death at the hands of a man who ever prostrated to Allah even once."***
+
+### 🔑 Umar's Final Acts:
+* **The Burial Request:** Umar sent his son, Abdullah, to **Aisha (RA)** to ask a personal favor: *"Umar asks permission to be buried alongside his two companions (Prophet Muhammad ﷺ and Abu Bakr RA)."* Aisha wept and said she had reserved that final spot for herself, but added, *"Today, I prefer Umar over myself."* Hearing this, Umar was filled with immense peace.
+* **The Shura Committee:** To prevent absolute political chaos, Umar refused to hand-pick his successor. Instead, on his deathbed, he formed a elite 6-member council (*Shura*) consisting of **Uthman, Ali, Talhah, Zubayr, Sa'd ibn Abi Waqqas, and Abdur Rahman ibn Awf** (RA), giving them exactly three days to consult and elect the next Caliph from among themselves.
+
+On the 1st of Muharram, 24 AH, Umar al-Faruq passed away at the age of 60, bringing a close to one of the most successful and legendary decade-long reigns in global political history.
+
+---
+
+## 💡 Key Takeaways & Lessons
+
+1. **Unwavering Submission to Law:** Even as he lay dying, Umar demanded to know if his stabbing was due to any unjust decree he had passed, showing that he held his accountability to the law above his own survival.
+2. **The Fragility of Unity:** The assassination of Umar marked the first time a ruling Muslim Caliph was murdered inside the Prophet's mosque. It shattered the internal political peace of Madinah and opened a door of political instability that the Ummah would struggle to close for decades to come.
+
+---
+*Follow along as we witness the election and early caliphate of the Third Caliph, Uthman ibn Affan (RA), tomorrow!*
 
 
 
