@@ -299,6 +299,52 @@ On the 1st of Muharram, 24 AH, Umar al-Faruq passed away at the age of 60, bring
 
 ---
 *Follow along as we witness the election and early caliphate of the Third Caliph, Uthman ibn Affan (RA), tomorrow!*
+# 🌙 Islamic History Journey - Day 29
+> **"Every Prophet has a companion, and my companion in Paradise will be Uthman." — Prophet Muhammad (ﷺ)**
+
+Welcome to Day 29 of my daily Islamic History series. Today, we look into the historic transition of power after the passing of Umar (RA), focusing on the election of the Third Caliph of Islam, Uthman ibn Affan (RA) (24 AH / 644 CE), through the world's first structured public democratic council (*Shura*).
+
+---
+
+## 🗳️ The Six-Member Shura Council
+
+On his deathbed, Caliph Umar (RA) appointed an elite committee of six prominent companions to select the next leader from among themselves within three days. The council members were: **Ali ibn Abi Talib, Uthman ibn Affan, Abdur Rahman ibn Awf, Sad ibn Abi Waqqas, Zubayr ibn al-Awwam, and Talhah ibn Ubaidullah** (RA).
+
+To facilitate an unbiased process, **Abdur Rahman ibn Awf (RA)** voluntarily withdrew his own candidacy, taking up the monumental role of the neutral arbitrator and chief election commissioner. 
+
+---
+
+## 🗣️ The World's First Public Survey
+
+Abdur Rahman ibn Awf (RA) took his responsibility with ultimate seriousness. For two consecutive days and nights, he barely slept. He walked through the streets of Madinah, visiting houses, tents of travelers, and consulting every segment of society. 
+
+He interviewed:
+* The elite military commanders and tribal chiefs.
+* The ordinary citizens, scholars, and students.
+* The women of Madinah and even travelers entering the city borders.
+
+Through this intense public consultation, the choices narrowed down to the two most respected figures in the Muslim world: **Ali ibn Abi Talib (RA)** and **Uthman ibn Affan (RA)**. Both possessed unmatched virtues, but represented slightly different approaches to governance—Ali was known for his uncompromising idealism and strict justice, while Uthman was beloved for his deep gentleness, administrative leniency, and vast experience in economic affairs.
+
+---
+
+## 🕋 The Pledge of Allegiance (*Bay'ah*)
+
+On the third morning, Masjid an-Nabawi was packed to its absolute capacity. Abdur Rahman ibn Awf (RA) took the stage and called both Ali and Uthman forward. 
+
+He asked them if they would rule strictly according to the Book of Allah, the Sunnah of the Prophet (ﷺ), and the precedents set by the first two Caliphs (Abu Bakr and Umar). After evaluating their responses and aligning them with the consensus of the public survey, Abdur Rahman ibn Awf grabbed the hand of **Uthman ibn Affan (RA)** and pledged allegiance to him as the next Caliph. 
+
+The entire congregation, including Ali ibn Abi Talib (RA), stepped forward and enthusiastically pledged their loyalty. Uthman was 68 years old when he took office, bringing decades of wisdom, generosity, and gentleness to the leadership of the Ummah.
+
+---
+
+## 💡 Key Takeaways & Lessons
+
+1. **Democratic Consultation:** The election of Uthman (RA) was not a monarchy or a back-room political deal. It was a beautiful display of public consultation (*Shura*), proving that Islamic leadership must always value the voice, consensus, and peace of the community.
+2. **Unity Over Ego:** Even though Ali (RA) was highly qualified and desired to lead, the moment the decision was made, he was among the very first to shake Uthman’s hand and pledge his full support, setting a golden example of unity and political maturity for future generations.
+
+---
+*Follow along as we explore the massive maritime achievements and the golden economic era during the early reign of Uthman (RA) tomorrow!*
+
 
 
 
