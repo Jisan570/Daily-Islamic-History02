@@ -553,6 +553,39 @@ While this move aimed to bring a fresh start, it increased political friction. I
 
 ---
 *Follow along as we witness the escalating tensions that led to the tragic Battle of the Camel tomorrow.*
+# 🌙 Islamic History Journey - Day 35
+> **"A tragic misunderstanding that shed the blood of brothers."**
+
+Welcome to Day 35. Today, we look into the tragic **Battle of the Camel** (36 AH / 656 CE), the first civil conflict in Islamic history, caused by political confusion and extremist sabotage.
+
+---
+
+## 🏛️ The Gathering at Basra
+After Caliph Uthman’s martyrdom, senior companions like **Talhah**, **Al-Zubayr**, and the Prophet's widow **Aisha (RA)** left for Basra. They wanted to build a base to demand immediate justice (*Qisas*) for Uthman's murder. 
+
+Caliph **Ali (RA)** marched with his army to meet them. He agreed with their pain but maintained that central authority must be stabilized first before arresting the killers.
+
+---
+
+## 🤝 The Peace Talks and Sabotage
+For days, negotiations went beautifully. Ali (RA) and the opposing group reached a peaceful agreement to unite and avoid war. 
+
+However, the extremists—who had murdered Uthman and infiltrated both camps—realized that peace meant their execution. Under the cover of darkness, they launched secret attacks on both armies, making each side believe the other had broken the treaty.
+
+---
+
+## ⚔️ The Clash and Tragic Outcome
+Chaos erupted. Aisha (RA) watched the battlefield from a heavily guarded litter atop a camel, trying to call for peace. The fighting focused heavily around her camel, giving the battle its historic name.
+
+The battle ended with Ali’s forces securing control, but the loss was heartbreaking:
+* **Talhah and Al-Zubayr (RA)** were both tragically killed.
+* Ali (RA) treated Aisha (RA) with ultimate respect, sending her safely back to Madinah with a royal escort led by her brother.
+
+---
+
+## 💡 Key Takeaway
+The Battle of the Camel was not a war of faith, but a tragedy driven by hidden agitators exploiting a political division among sincere companions.
+
 
 
 
