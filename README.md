@@ -585,6 +585,27 @@ The battle ended with Ali’s forces securing control, but the loss was heartbre
 
 ## 💡 Key Takeaway
 The Battle of the Camel was not a war of faith, but a tragedy driven by hidden agitators exploiting a political division among sincere companions.
+# 🌙 Islamic History Journey - Day 36
+
+Welcome to Day 36. Today we cover **The Battle of Siffin** (37 AH / 657 CE), a major standoff between Caliph Ali (RA) and Mu'awiyah (RA).
+
+---
+
+## ⚔️ The Standoff at Siffin
+* **The Conflict:** Mu'awiyah (RA), governor of Syria, refused to pledge allegiance until Caliph Uthman's killers were brought to justice. 
+* **The Battle:** Negotiation failed, leading to a fierce confrontation at Siffin near the Euphrates River.
+
+---
+
+## 📜 The Quran on Spears & Arbitration
+When Ali's forces gained the upper hand, Mu'awiyah's army raised copies of the Quran on their spears, asking to settle the dispute through Allah's Book.
+
+Ali (RA) accepted arbitration (*Tahkeem*) to stop Muslim bloodshed, appointing **Abu Musa al-Ash'ari** and **Amr ibn al-Aas (RA)** to negotiate a peaceful resolution.
+
+---
+
+## 💡 Key Takeaway
+Siffin showed how political disagreements, even among great leaders, reached a boiling point where both sides sought peace through Islamic arbitration.
 
 
 
