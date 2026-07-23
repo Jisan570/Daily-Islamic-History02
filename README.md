@@ -606,6 +606,25 @@ Ali (RA) accepted arbitration (*Tahkeem*) to stop Muslim bloodshed, appointing *
 
 ## 💡 Key Takeaway
 Siffin showed how political disagreements, even among great leaders, reached a boiling point where both sides sought peace through Islamic arbitration.
+# 🌙 Islamic History Journey - Day 37
+
+Welcome to Day 37. Today we cover **The Battle of Nahrawan** (38 AH / 658 CE) and the rise of the Khawarij (extremists).
+
+---
+
+## ⚡ The Birth of the Khawarij
+* **The Revolt:** A group rebelled against Caliph Ali (RA) for accepting arbitration at Siffin, claiming *"Judgment belongs to Allah alone."*
+* **Extremism:** They declared all Muslims who disagreed with them as disbelievers, causing terror and killing innocent citizens.
+
+---
+
+## ⚔️ The Battle of Nahrawan
+Ali (RA) tried peaceful dialogues first, but when they continued their violence, he fought and defeated them at Nahrawan to protect the public.
+
+---
+
+## 💡 Key Takeaway
+Nahrawan highlights the danger of religious extremism, proving that fanaticism must be confronted to keep peace and order.
 
 
 
