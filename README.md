@@ -625,6 +625,27 @@ Ali (RA) tried peaceful dialogues first, but when they continued their violence,
 
 ## 💡 Key Takeaway
 Nahrawan highlights the danger of religious extremism, proving that fanaticism must be confronted to keep peace and order.
+# 🌙 Islamic History Journey - Day 38
+
+Welcome to Day 38. Today we mark **The Martyrdom of Ali ibn Abi Talib (RA)** (40 AH / 661 CE) and the end of the Rashidun Caliphate.
+
+---
+
+## 🗡️ The Assassination
+* **The Plot:** A Kharijite extremist named Ibn Muljam plotted to assassinate Caliph Ali (RA) in Kufa.
+* **The Attack:** While Ali (RA) was leading the Fajr prayer, Ibn Muljam struck him with a poisoned sword.
+
+---
+
+## 🕊️ Final Legacy & End of Era
+* **Forgiveness:** Before passing away, Ali (RA) requested fair treatment for his attacker, forbidding unjust revenge.
+* **End of Rashidun Era:** His death brought an end to the era of the Four Rightly Guided Caliphs (*Khilafat ar-Rashidah*).
+
+---
+
+## 💡 Key Takeaway
+Ali (RA) lived as a titan of courage and knowledge, leaving behind a legacy of absolute justice and sacrifice for the Ummah.
+
 
 
 
