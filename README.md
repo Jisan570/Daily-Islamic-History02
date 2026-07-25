@@ -645,6 +645,26 @@ Welcome to Day 38. Today we mark **The Martyrdom of Ali ibn Abi Talib (RA)** (40
 
 ## 💡 Key Takeaway
 Ali (RA) lived as a titan of courage and knowledge, leaving behind a legacy of absolute justice and sacrifice for the Ummah.
+# 🌙 Islamic History Journey - Day 39
+
+Welcome to Day 39. Today we cover **The Reconciliation by Hasan ibn Ali (RA)** (41 AH / 661 CE) and the Year of Unity (*Aam al-Jama'ah*).
+
+---
+
+## 🕊️ Hasan’s Great Sacrifice
+* **Short Caliphate:** After Ali (RA), his eldest son Hasan (RA) was elected Caliph in Kufa, ruling for about six months.
+* **Choosing Peace:** To stop Muslim bloodshed, Hasan (RA) voluntarily stepped down and handed power to Mu'awiyah (RA) under peaceful conditions.
+
+---
+
+## 🤝 The Year of Unity (*Aam al-Jama'ah*)
+* **Fulfilling Prophecy:** This peace treaty fulfilled the Prophet’s (ﷺ) prophecy that Hasan would bring together two large factions of Muslims.
+* **Unified Ummah:** The year 41 AH became known as the *Year of Unity*, establishing the Umayyad Caliphate.
+
+---
+
+## 💡 Key Takeaway
+Hasan (RA) proved that true leadership means sacrificing power and personal ambition for the peace and unity of the nation.
 
 
 
