@@ -665,6 +665,22 @@ Welcome to Day 39. Today we cover **The Reconciliation by Hasan ibn Ali (RA)** (
 
 ## 💡 Key Takeaway
 Hasan (RA) proved that true leadership means sacrificing power and personal ambition for the peace and unity of the nation.
+# 🌙 Islamic History Journey - Day 40
+> **Conclusion of Part 2: The End of the Rashidun Era**
+
+Welcome to Day 40. Today we conclude **Part 2** of our Islamic history series, marking the end of the Rightly Guided Caliphs (*Khilafat ar-Rashidah*).
+
+---
+
+## 📌 Summary of Part 2
+* **The Four Caliphs:** We journeyed through the leadership of Abu Bakr, Umar, Uthman, and Ali (RA).
+* **Major Milestones:** From defeating empires and compiling the Quran to navigating internal trials (*Fitnah*) with wisdom.
+* **The Great Sacrifice:** Ended with Hasan (RA) unifying the Ummah in the *Year of Unity*.
+
+---
+
+## 🚀 What's Next? (Part 3 Announcement)
+Part 2 is officially closed! Get ready for **Part 3**, where we will explore the **Umayyad Dynasty**, the expansion of Islam across Spain, Asia, and the Golden Islamic Era—in bite-sized daily reads!
 
 
 
